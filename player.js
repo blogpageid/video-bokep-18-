@@ -13,9 +13,8 @@
               <a class="btn btn-danger mt-3" 
               target="blank"
               style="width:100%"
-              href="https://cuty.io/quick?token=3c2f8445e662326c2ebcd8d60&url=https://d0000d.com/d/${fileId}" target="_blank">Download Bokep Disini</a>
+              href="https://www.highrevenuenetwork.com/pma0w48z5?key=119531867ef4a540564dcd3d4facdc69" target="_blank">DOWNLOAD VIDEO</a>
               <p style="color:red;font-weight=bold">
-                Lewatin Iklan nya kalo mau download bokep bro
               </p>
             </div>
           </div>
